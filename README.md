@@ -2,7 +2,7 @@ Patimban Industrial Estate is emerging as a key destination for industrial growt
 
 The estate spans around 1,200 hectares and is designed as a fully integrated industrial zone. With well-organized plots, modern infrastructure, and essential utilities, it provides an optimal environment for industries such as automotive production, electronics, petrochemicals, and other high-tech manufacturing sectors. The estate’s layout supports efficient operations while maintaining flexibility for diverse industrial needs.
 
-One of the main advantages of Patimban Industrial Estate is its proximity to Patimban Port. This deep-sea port was developed to increase Indonesia’s export capacity and reduce congestion at other major ports. Companies located nearby can take advantage of shorter shipping times, reduced logistics costs, and streamlined export procedures, which are essential for businesses targeting global markets.
+One of the main advantages of [Patimban](https://patimbanindustrialestate.co.id/) Industrial Estate is its proximity to Patimban Port. This deep-sea port was developed to increase Indonesia’s export capacity and reduce congestion at other major ports. Companies located nearby can take advantage of shorter shipping times, reduced logistics costs, and streamlined export procedures, which are essential for businesses targeting global markets.
 
 Connectivity further strengthens the estate’s appeal. It is linked to the Cipali Toll Road, providing easy access to Jakarta and other key cities across Java. Additionally, Kertajati International Airport is within a practical distance, enhancing international cargo handling and improving supply chain efficiency for companies operating in the region.
 
